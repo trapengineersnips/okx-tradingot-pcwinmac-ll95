@@ -1,4 +1,4 @@
-# 
+# Inteligente okx trading bot flujo de trabajo para Mac OS | Mejor okx trading bot flujo de trabajo para PC Windows. Con gestión de claves privadas y limitación de velocidad — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
